@@ -1,0 +1,3 @@
+- 👋 Hi, I’m ChrsY aka ChrystaL from another universe
+- 👀 I’m interested in Source/Goldsource Modding
+- 💀 I've been committed 32 bernadyls
