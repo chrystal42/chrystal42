@@ -1,3 +1,6 @@
-![a4581659e2c2cbd67b1f20220607da95](https://github.com/chrystal42/chrystal42/assets/117550504/5f356907-da9e-413a-9a0d-eb11d63dc3b6)
-
-me moddr 
+**Hi i do modding :3**
+<p>
+<img align="center" src="https://github-readme-stats-sigma-five.vercel.app/api?username=chrystal42&show_icons=true&theme=cobalt&count_private=true"/>
+</p>
+<p >   
+</p>
